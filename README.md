@@ -15,4 +15,8 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
+ I'm a web-developer
  
+ 
+ I am a passionate, honest, dedicated and reliable person who enjoys working as a part of team.
+ I accept every challenge in a work environment with my positive attitude.
